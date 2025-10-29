@@ -1,0 +1,1 @@
+# OsGuri_ads
